@@ -1,3 +1,3 @@
 # FLOATING-IDEA
 
-Just a referenceto my all thoughts and a log of  it to help recollect
+Just a reference of my all thoughts and a log of it to help recollect
