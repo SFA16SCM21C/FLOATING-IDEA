@@ -149,3 +149,17 @@ Customized digital copy of their Pinterest characters as a Spotify song of their
 Customized masala jars, maybe even do ceramic coffee sugar and tea boxes, then customize
 
 Customize high end dresses??
+
+Take inspiration Pinterest of the houses you want to have do miniature versions of them and make a big house out of it like a big doll house that’s how you sell it
+
+How about customized coffee pods of the South Indian coffee for events and big set or something
+
+You can also introduce customized items as a set of four with boxing in shades of same color in increasing or decreasing and then biggest bouflower on top
+
+Comic idea - one day mittu and butler watched KUWK and got addicted to it, or got addicted to
+
+Customize that vintage words gala corset with flowers on to and add the green yellow pants that you have on your mood board
+
+Leather collared corset or pinstripes collared corset with buttons, shiny pants or Lacey pants with pants like buttons - adore inspired heels or pink or green adore inspired heels kittens types
+
+Customized keyboards niceeeeeeeee
