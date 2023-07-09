@@ -101,3 +101,17 @@ Anime crystal ball? (Like the pikachu one)
 Denim jacket, or fringe jacket, denim white fur jacket, look from this recommendation - https://www.alibaba.com/trade/search?spm=a2700.galleryofferlist.0.0.215b6ef1FpqRXg&SearchScene=themePage&themeScene=intelligentRecommendation&themeIds=107029221,107029039,107029439&sceneId=101001501&SearchText=denim+jackets&themeId=107029439&themeName=intelligentRecommendation:Trending%20Products%20with%20High%20Market%20Potential
 
 Another customized medals, pasta custom too and for different types, like for being proud of me/you, proud you being your daughter, etc (metal medal also instagram or Pinterest would show u ideas for customization)
+
+With denim, think of his/her box (take local first into consideration to make one for you then customize and large scale)
+
+Next idea, bracelet one by one and then introduce friendship set on friends day or girls, for boys lets see a car collection or pick one of those, and use cushions to introduce your set/customize large scale later
+
+Try customize box of flowers too with a customized item or a message I center, try this bouquet or box of flowers thing in local first, or gallons or something just an idea loose idea does not sound feasible so first local try
+
+For mom and dad an idea, a set of hankies customized for an occasion or celebration, first try customization of one hanky
+
+Our mascot could be a mitt and a fancy dakiya who’s retired niceeeeeee who listen to peoples story and send them blessings bcz its their goal (could be any story that’s when you show the comic version of it while in a conversion you goooo zoom to next screen)
+
+Once a milestone release a character out of the ideas you have crafted using a poll and add them to your family on your main landing page, use the poll to decide on a winner in each category, keep growing like that
+
+— first ever family member are gong to be anda and chill / piggy YOU can also think of putting them as your mascots, you shower and you as first icons and then dakiya - sushi or shelly, mitt tamari akshita
