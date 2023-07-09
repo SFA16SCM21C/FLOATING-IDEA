@@ -17,3 +17,17 @@ Check —— there are websites that customize items for you, check if they can 
 
 
 Or best option for the laziest people that they can send people a link to set themselves up with a surprise box for themselves or like a gift to a family member or ike a gift t oa coworker???
+
+Later releases if it works out, that you can have one poll to find out which category by cater they would like to choose to add a s a signature product for the company since you love and are very thankful to your customer base
+
+Also as a brand if you want to itself your self later on you can make cards, gift wrappers that your brand will resent or based on the category of the gift being sent you can create categories gift bag wrappers??
+
+You can also think of aiming different aspects at different crowd, for couples you can try to check another strategy like making a little game with the gifting boxes if it is for lovers, they can play a game together or make an solo game for each other.
+
+You can also make reels based on movies doing good like tu jhooti me maker, and make toons as a post to attract customers also make reels out of those toons
+
+One also early on idea could be sending people a comic version of peoples memory or you can do draw on pictures using ur iPad and make fun scribbles on it , he idea is tending towards the idea of pics as in pics in your cam and something and anything, make crowns on girls, or or team lunch team make them an army and pose like that, think of idea like that too
+
+Business — Appreciation Boxes (AB)
+
+Story - Gift Boxes ( contains a comic version of letter of a memory or appreciation for like team related or business related people)
