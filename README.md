@@ -115,3 +115,16 @@ Our mascot could be a mitt and a fancy dakiya who’s retired niceeeeeee who lis
 Once a milestone release a character out of the ideas you have crafted using a poll and add them to your family on your main landing page, use the poll to decide on a winner in each category, keep growing like that
 
 — first ever family member are gong to be anda and chill / piggy YOU can also think of putting them as your mascots, you shower and you as first icons and then dakiya - sushi or shelly, mitt tamari akshita
+
+For your first ever launch customer who got you 20 orders to launch them on website I have an idea, use the dakiya to flash the mittu in the dark, looking for a person to give them the lift at a deserted area, you wait and wait….and then when you finally do find someone who ordered you show them coming to your rescue in some way introduce them based on their vibe and just say, heyyyyy! And end the episode
+
+best idea is those wrapping paper if you need make them 4 pastels shades based on your first 4 order color palette and then again zoom into the box —— think
+
+Always while customizing put the wrapping in one type of design based on custom same goes for the box, and then release 4 colors during bulk and same for boxes
+
+Later for bulk, do one thing let mitt and dakiya choose items upto 1-10 and make their own box, or when item becomes too much —— new idea to group them into categories, choose your main piece and then what you want to say or what you them to feel or some aadhar satkaar or company thing
+
+Shelly and akshita 30 comics - LOVE
+Akshita and cousins 15+15 parents comics - FAMILY
+Akshita and Friends for a THANK YOU or celebration - FRIENDSHIP
+People and Boss - APPRECIATION (Teamwork n all)
