@@ -43,4 +43,21 @@ Also you can target the gift boxes by that customizations, that how you scale
 
 You can start with Unknown Company name and market it like where customer can decide what will be the company name,
 
+Start testing the website by using a letter to send my brother and my friends
+
+Launch phase one as chat group — launch phase two as unknown box or a fixed box — then launch as your own branch and something later or a app
+
+Option 1 - …send a love box to your person (LOVE)
+Option 2 -…send love box anonymously (COMPLICATED)
+Option 3 - …send appreciation box (CHERISH)
+Option 4 - …send respect box (RESPECT)
+
+Options - Respect/Appreciation Boxes or His/Her Boxes
+
+You can also add a mobile phone long customized mood board and send the jpeg or something like that with some words describing how the person describes your vibe - its easy to do
+Another digital art idea, the location of their date or something a digitized version of that location if they want
+
+Later denim corset? Or a barbie doll dressed in their attire
+
+Cake toppers?
 
