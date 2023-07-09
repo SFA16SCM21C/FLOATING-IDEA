@@ -137,3 +137,15 @@ Top 1 from all 4, then you continue customs
 Organize online parties and send people a scheduled invitation if you want to show your mascot or something, YouTube live for launch events or something, if you want to custom it to send invitations to people on your behalf for virtual hangout also make sure you ask them accept on terms ond condition
 
 Mithhu is a principal of school where he allows people to be free and expressive, mitt is waiting to welcome his first student, first client….that how also you can start the story when you bulk up
+
+If it’s been days then you can go with mitts n a trip to find your customer in Delhi using mithhu as ur social presence..if its been too much time after bulk, you can show mithhu roaming around doing things they wanna do, but they always end up waking up from the dream after the dream ends, suddenly one day they received a ping, then mithhu and dakiya or whoever ran and ran n reached finally to hear their story
+
+Bestttttt----- use and n piggy as a story friends, mithhu and dakiya to portray your social presence, toon is on and n piggy friends, they become friends with butler and mithhu who help them run the school
+
+Make custom Spotify playlist for a theme???? And add it in package?? First start it in the customized cell wallpaper and see how people react
+
+Customized digital copy of their Pinterest characters as a Spotify song of their choice, can be printed too, later introduce an album that you can store it in or fridge magnets whatever they want it to be customized to ——— also a deck of card like box, or in polaroid form check price
+
+Customized masala jars, maybe even do ceramic coffee sugar and tea boxes, then customize
+
+Customize high end dresses??
