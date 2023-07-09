@@ -163,3 +163,7 @@ Customize that vintage words gala corset with flowers on to and add the green ye
 Leather collared corset or pinstripes collared corset with buttons, shiny pants or Lacey pants with pants like buttons - adore inspired heels or pink or green adore inspired heels kittens types
 
 Customized keyboards niceeeeeeeee
+
+Another comic idea is comic of the Indian old died romantic couples who gives advices to people who are in trouble or who have something to say since they were an expert of Indian love , the land where love exists in many forms ???
+
+- A google extension or a website?? To preschedule to default limit or til la year long calendar to send emails or something like that virtually on behalf of a company or a person  or to entire official or client business circle as a reach out email—— a total scheduling kinda technical side business
