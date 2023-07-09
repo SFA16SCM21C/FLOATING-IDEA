@@ -167,3 +167,21 @@ Customized keyboards niceeeeeeeee
 Another comic idea is comic of the Indian old died romantic couples who gives advices to people who are in trouble or who have something to say since they were an expert of Indian love , the land where love exists in many forms ???
 
 - A google extension or a website?? To preschedule to default limit or til la year long calendar to send emails or something like that virtually on behalf of a company or a person  or to entire official or client business circle as a reach out email—— a total scheduling kinda technical side business
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+- FLOATING IDEA LINKS
+
+Ai platform that created the website —— https://framer.com/projects/Surprise-Boxes-Online--vwgamwHrWvwbnYxBO8j3-fed8T
+
+If you want to create your own custom checks this website - https://www.vistaprint.in/my-account/design/projects/
+
+To make presentation and figure out business plan using polls from ai - https://www.beautiful.ai/?utm_source=googleAds&utm_medium=searchGen&utm_campaign=12085451902&ntwrk=g&adgpid=118042127162&plcmnt=&utm_term=&gad=1&gclid=Cj0KCQjwnf-kBhCnARIsAFlg491UEmRxBF7UsZTwHhjZ78kzHDXGwhffahzfFb0henHMUze3T51mthAaAk93EALw_wcB 
+
+If you want to make character avatars - https://avatarmaker.com/female/
+
+To make contents for the emails - https://www.copy.ai/
+
+
+
+(Problem is free trial, need to find a free version like that)
