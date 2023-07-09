@@ -31,3 +31,16 @@ One also early on idea could be sending people a comic version of peoples memory
 Business — Appreciation Boxes (AB)
 
 Story - Gift Boxes ( contains a comic version of letter of a memory or appreciation for like team related or business related people)
+
+——NOTHER BEST IDEA —— INDIA ME POSTMAN BAND HO GYE HAI, SO LET US BE YOUR DAKIYA (BUSINESS NAME COULD ALSO BE DAKIYA OR SIMILAR, NOW SEND LETTERS WITH POSTMAN VALI TYPE KI CHITTHI FOR OLD VERSIONS OF MEMORIES OR SNEDING YOUR GIRLFRIENDS LIKE THAT,, SOUNDS LIEK A GOOD MARKET FOR SMALL SCALE GIFTS TOO, MIANLY ITS GONNA BE )
+
+—OR DAKIYA FOR OLD PEOPLE TARGET — COMIC VALA YOUNG PEOPLE TARGET
+
+Promotional - employee welcome kit
+
+Also you can target the gift boxes by that customizations, that how you scale
+
+
+You can start with Unknown Company name and market it like where customer can decide what will be the company name,
+
+
