@@ -128,3 +128,12 @@ Shelly and akshita 30 comics - LOVE
 Akshita and cousins 15+15 parents comics - FAMILY
 Akshita and Friends for a THANK YOU or celebration - FRIENDSHIP
 People and Boss - APPRECIATION (Teamwork n all)
+Or ask them to send you voice notes of what they wanted to say/feel to the person and sending what reason
+
+Find their top 10 items they would want to gift each other in this one moth to apologize or to say whatever they expressed
+
+Top 1 from all 4, then you continue customs
+
+Organize online parties and send people a scheduled invitation if you want to show your mascot or something, YouTube live for launch events or something, if you want to custom it to send invitations to people on your behalf for virtual hangout also make sure you ask them accept on terms ond condition
+
+Mithhu is a principal of school where he allows people to be free and expressive, mitt is waiting to welcome his first student, first client….that how also you can start the story when you bulk up
