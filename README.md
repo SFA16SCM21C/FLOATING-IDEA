@@ -74,3 +74,20 @@ Lego pieces sent as a kit or sent as a custom gift box of the pieces displayed i
 Olive and Popeye lego ox
 
 Miniature house kits/gift box
+
+Or you can accumulate your customs ones and make a big doll house, you can piece together different vibes of rooms together n then ask local worker to change it local to outsourced
+
+Remember the miniature ideas you have stored in your Pinterest board, you can also use the miniature garden ideas to make your own customized one after taking some time
+
+Now you have an I deal of how many things you can customize and add in your box,
+
+Also saw bts cards, add it in a bts inspired box
+
+Damnnnnn, black pink inspired box
+
+Have a bts contest in Delhi and pick up few followers and send them bts customized boxes for promotion
+
+Now cards introduced, now you customize cards for people
+
+Crystal chick introduction/customize
+
