@@ -61,3 +61,16 @@ Later denim corset? Or a barbie doll dressed in their attire
 
 Cake toppers?
 
+Customized cake toppers. Nice
+
+Proposal box, anniversary box, bridesmaid, groomsmen, poeople checking in hotel box, gift box, bride groom box, guide gudiya ka keel or ken and barbie style, or cake topper style
+
+Indian barbie, bride barbie, mother barbie, grandma barbie, wife barbie
+
+Glass painting that acrylic types for anime or wedding signs
+
+Lego pieces sent as a kit or sent as a custom gift box of the pieces displayed in between the box for a groom example
+
+Olive and Popeye lego ox
+
+Miniature house kits/gift box
