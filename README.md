@@ -90,4 +90,14 @@ Have a bts contest in Delhi and pick up few followers and send them bts customiz
 Now cards introduced, now you customize cards for people
 
 Crystal chick introduction/customize
+Evil eye suncatcher/customize
 
+Kancha set? For fun
+
+Big crystal on a acrylic stand or something like that/customize
+
+Anime crystal ball? (Like the pikachu one)
+
+Denim jacket, or fringe jacket, denim white fur jacket, look from this recommendation - https://www.alibaba.com/trade/search?spm=a2700.galleryofferlist.0.0.215b6ef1FpqRXg&SearchScene=themePage&themeScene=intelligentRecommendation&themeIds=107029221,107029039,107029439&sceneId=101001501&SearchText=denim+jackets&themeId=107029439&themeName=intelligentRecommendation:Trending%20Products%20with%20High%20Market%20Potential
+
+Another customized medals, pasta custom too and for different types, like for being proud of me/you, proud you being your daughter, etc (metal medal also instagram or Pinterest would show u ideas for customization)
