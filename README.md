@@ -13,10 +13,10 @@ FREAKING IDEAS
 CRAFTY TYPES IDEAS
 - Use chatgpt to make a plan for a small e-commerce business that sells customized bridesmaids' boxes? Use chatgpt to come up with a strategyItems could include a compact mirror, something something, use Pinterest to get some inspiration. You could make customizations on Harry Potter-inspired surprise boxes. Or gen shin inspired surprise boxes? Or you can customize on girl's nakhras? Or girls' cute characteristics like mere nakhre vale, meri caring vali or use a different variety of something on girls mood basis maybe candles? Or explain your girl in adjectives and we make a surprise box for her. You can also make them age-appropriate boxes too? Give your daughter a girl surprise box set. Could add ear cuffs custom-made for people in the gift box?
 
-Check —— there are websites that customize items for you, check if they can customize a box of items for you. It completely stops you from doing in house business, all could be through websites only and email
+Check —— there are websites that customize items for you, check if they can customize a box of items for you. It completely stops you from doing in-house business, all could be through websites only and email
 
 
-Or best option for the laziest people that they can send people a link to set themselves up with a surprise box for themselves or like a gift to a family member or ike a gift t oa coworker???
+Or best option for the laziest people that they can send people a link to set themselves up with a surprise box for themselves or like a gift to a family member or ike a gift to a coworker.
 
 Later releases if it works out, that you can have one poll to find out which category by cater they would like to choose to add a s a signature product for the company since you love and are very thankful to your customer base
 
