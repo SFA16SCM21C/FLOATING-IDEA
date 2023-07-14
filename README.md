@@ -16,9 +16,9 @@ CRAFTY TYPES IDEAS
 Check —— there are websites that customize items for you, check if they can customize a box of items for you. It completely stops you from doing in-house business, all could be through websites only and email
 
 
-Or best option for the laziest people that they can send people a link to set themselves up with a surprise box for themselves or like a gift to a family member or ike a gift to a coworker.
+Or best option for the laziest people that they can send people a link to set themselves up with a surprise box for themselves or like a gift to a family member or make a gift to a coworker.
 
-Later releases if it works out, that you can have one poll to find out which category by cater they would like to choose to add a s a signature product for the company since you love and are very thankful to your customer base
+For later releases if it works out, that you can have one poll to find out which category by cater they would like to choose to add a s a signature product for the company since you love and are very thankful to your customer base
 
 Also as a brand if you want to itself your self later on you can make cards, gift wrappers that your brand will resent or based on the category of the gift being sent you can create categories gift bag wrappers??
 
